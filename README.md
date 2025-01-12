@@ -1,7 +1,7 @@
 # WEB-PGM-DB
 GIT Hub novice in Web, Pgm, & Db Foundation (2025SP.CTI.110.0003) @ Wake Tech Comm College.
 
-Hello Class , my name is Deitmar. I'm new in NC, Wake Forest area and three years in USA. I'm past forty , but being in a new coutry I think it is important I remake myself. Learning is an ongoing process so we should always embrace it. Never be afraid of new things, never be afraid to grow.
+Hello Class , my name is Deitmar. I'm new in NC, Wake Forest area and three years in USA. I'm past forty , but being in a new country I think it is important I remake myself. Learning is an ongoing process so we should always embrace it. Never be afraid of new things, never be afraid to grow.
 
 Learning a new skill is importamt, especially in a ever changing world. Where society keeps on evolving. So pay attention to your lecturers and put in effort in all you do. 
 
